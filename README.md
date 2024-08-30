@@ -9,5 +9,5 @@ Meu nome é Douglas Alves de Lima
 
 Você pode entrar em contato comigo 📫
 
-zdouglas7alv@email.com
+zdouglas7alv@gmail.com
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.icegif.com%2Fneymar-da-silva-santos-junior-9%2F&psig=AOvVaw0oUVbpI9s7Too3H2RZlMfs&ust=1724850076107000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCOjLpLOdlYgDFQAAAAAdAAAAABAJ****)
